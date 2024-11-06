@@ -1,1 +1,1 @@
-# ProjGitRemoto_ArthurLS
+Checkpoint – Arthur LS
